@@ -1,4 +1,4 @@
-## Welcome! ??
+## Welcome! 👋
 
 My name is Shafiq Akiya for short, IT graduate from Petronas University of Technology. I have experience of having a 6-monthh internship in Japan as an intern for Mitsubishi Fuso.
 
